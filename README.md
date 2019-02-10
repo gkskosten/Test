@@ -1,2 +1,2 @@
-# Diplom
-Diplom
+fgfhjkl;gchjvjbnm,./
+dgfhvkjbknmlxfchgvjbkn
